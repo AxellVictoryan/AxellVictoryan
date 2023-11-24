@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AxellVictoryan
+- untuk akhir semester pasrah dan berpegang teguh sama Tuhan
+- jangan mengandalkan diri sendiri
+- Libat kan Tuhan dalam segala perkara mu 
