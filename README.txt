@@ -3,3 +3,5 @@
 - jangan mengandalkan diri sendiri
 - Libat kan Tuhan dalam segala perkara mu 
 - Mulai nyicil judul yook
+- menjadi dewasa 
+- Giat cari inpo
