@@ -5,3 +5,5 @@
 - Mulai nyicil judul yook
 - menjadi dewasa 
 - Giat cari inpo
+- ayo semangat 
+- Ayo ndang lulus
